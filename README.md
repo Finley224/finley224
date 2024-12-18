@@ -3,3 +3,6 @@ This is to inform you that I am permanently deactivating my online presence. I w
 Consider this my official goodbye. I don't expect to be contacted through these channels again. Any future attempts to reach me here will be unsuccessful.
 
 For what it's worth, I apologize for anything I might have said or done online that caused any offense.
+
+Sad music
+https://open.spotify.com/track/5vjLSffimiIP26QG5WcN2K?si=cc344a1a40de4686
